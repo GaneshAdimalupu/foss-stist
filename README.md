@@ -1,3 +1,5 @@
-# foss-stist
+# foss stist
 repo created
-Merfin
+varshaa
+jacqueline
+sradha
